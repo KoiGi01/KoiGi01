@@ -1,1 +1,1 @@
-- 📫 How to reach me: aldev_14@outlook.com
+- 📫 How to reach me: luismedlozn@gmail.com
